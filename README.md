@@ -1,3 +1,2 @@
-👽 - Node
-💻 - Dev Javascript 
-🔧 - Love Discord.Js
+- y'a rien a voir ici
+- 𝒢𝓇𝑜𝓈𝓈𝑒 𝓂𝑒𝓇𝒹𝑒 𝒹𝑒 𝒿𝓊𝒾𝒻
